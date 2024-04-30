@@ -5,3 +5,4 @@
 5 Quelaag's sister
 6 Maiden of Emarald 
 7 Fire keeper
+edhke-[he
